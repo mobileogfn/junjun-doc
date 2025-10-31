@@ -3,4 +3,5 @@
 
 # Also the next image is an old one where he says when ....
 
-<img width="1036" height="180" alt="image" src="https://github.com/user-attachments/assets/49982250-8aa1-4b39-94a1-34f46739221e" />
+<img width="580" height="165" alt="image" src="https://github.com/user-attachments/assets/542f4934-ed59-4741-b65d-59f1d4ca24ea" />
+
