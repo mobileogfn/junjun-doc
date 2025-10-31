@@ -13,6 +13,9 @@
 # Then calls Vryzen a "6 year old" when hes 13. Then when Vryzen says he is 11 he blocks him 🥀
 <img width="1170" height="2532" alt="image" src="https://github.com/user-attachments/assets/c8843427-33ca-4ed6-b445-5e6c02116a14" />
 
+# And says to me hes going to put me in the Underground server 🙏 so scary
+<img width="478" height="484" alt="image" src="https://github.com/user-attachments/assets/2831b02e-dba1-4a78-9d8e-60eab258c097" />
+
 
 
 
