@@ -10,7 +10,7 @@
 # Then says to Vryzen "do u know any other socials where i can block u?"
 <img width="439" height="78" alt="image" src="https://github.com/user-attachments/assets/281d3200-10bd-41f9-acab-6d959a8ef343" />
 
-# Then calls Vryzen a "6 year old" when hes 13 then when Vryzen asks if he is 11 he blocks him 🥀
+# Then calls Vryzen a "6 year old" when hes 13. Then when Vryzen says he is 11 he blocks him 🥀
 <img width="1170" height="2532" alt="image" src="https://github.com/user-attachments/assets/c8843427-33ca-4ed6-b445-5e6c02116a14" />
 
 
