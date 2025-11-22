@@ -14,6 +14,10 @@
 <img width="1170" height="2532" alt="image" src="https://github.com/user-attachments/assets/3bdde0bc-93ba-4d49-b22b-bf17d612b27f" />
 <img width="1170" height="2532" alt="image" src="https://github.com/user-attachments/assets/206b9c9c-3160-4e9c-9228-af8625fe579f" />
 
+# He also skids reload as you can see in the screenshot below
+<img width="334" height="289" alt="image" src="https://github.com/user-attachments/assets/4abbe678-f3c0-45cb-8f33-9e6db2757aac" />
+
+
 
 
 
